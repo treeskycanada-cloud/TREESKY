@@ -5,7 +5,27 @@ Hello World!
 </head>
 <body>
 
-<h1>Indipendent U.S.A.</h1>
+<h1>Indipendent U.S.A. 16/01/2026</h1>
+<p> George Bush & Laura Bush </p>
+<p> Both are sayng our Country Slaves and Thieves are grab and we have to take back. You can on see TV How some Thieves come and grab the properties go like a Owners. Next day owner without sleeping stay protect her Product. Theives came and grab the product owner say please stop doing this. And her begin please bring my Yeterday product. Theives say No i Don't
+have it. So think about Work Hard and make income. Thives came and get those like a they are Own. Very sad to see. This is people are asking we need Honest Leader who is thruly love
+Love to the Country and the People.</>
+<P> So George H.W.Bush Senior and He is Wife Barbara Bush Give permition to George W Bush Junior & Wife Laura Bush . Take the Tools back and Re divolp. They rimaind again and again
+Don't do stupid war anuwere any time plaese. If you do i will take both back to our place be Care full. Both are agree and promise to re divolop the Country.</P>
+<p> Both are saying every one must stop thieves Others. Make swate and make incomes Examples of  look SB Moving He go every day House by House Doing Free Cleaning up. Don't Thieves Go to Home depot and Rent the Equipment and do the work free Cleaning Up and make You Tube Vedios. People are waiting to Help you and Suport You. GB and Laura says before Thieves You have 
+to think about your family and love one's. Because future very Good enough to camera evidence to diport you. Family or anyone cannot re apply. Because Thieves is very danger drugs. Stay Rode and ask some Help . But don't please theives. Your Citizens ship value More then 100.000 Cash. So you are Loosing USA . Very bad mistake you are doing.</p>
+<P> What about slaves leaders ?</P>
+<p> They are all no more valubale leaders. They have very High income. Enjoy those but Don't disturb to Country or People are Any more please. But thre wife and familys can apply indipendent USA work. Make sure Work for Country. And Equally suport to the World. We are choosing Good workers . They are also have some complaing . But we have to forgive and started back . GB and Laura Now choose Hillary Clinton as Running Mate . Michele Obama also have chance. Also Marco rubio will Continu He is Job. Now he went vanizilla . Next have to Go Myanmar   Vanizula Is delivery guy. We have worl number one Opium Producers. Now we chage Venezuela 100 Billions. How much we have to charge Myanmar. January's 31 Muammar must remove Opium Product and make Frut producat and show tothe World. Marko Rubio in charge for Remove Drugs form the World. GB and Laura says.</p> 
+<h6> George Bush senior and Laura Bush and Hillary Clinton all Rights are Resived. Entrepreneur Justin Henry Wickramarathna.</h6>
+. 
+
+
+
+
+
+-----------------------------------------------------
+<h1> Indipendent U.S.A. 15/01/2026</h1>
+
 <p>What is the meaning of indipendet U.S.A. and why it needed?. Gorge H.W.Bush Senior and He is Wife Miss Barbara bush Only know what is going to happand U.S.A Politics. After they are 
 Made Henrys political sistem. Its stolen by Russia. Then Japan , Then Chinese, Then europ. UK always working with US and did Help but US economy debits got High until 41 Trillons.</p>
 <p> So Henry thought have stop it. He broded back to Gorge W Bush Junior and He is Wife Lora bush Power. They are running mate Hillary Clinton. All slave leaders will get Pention and 
