@@ -4,6 +4,23 @@
 Hello World!
 </head>
 <body>
+<P> Suterday Questions & Answers 2026/01/17</P>
+<p> Georg & Lora Bush </p>
+<p> * Someone say last years they will Build and in miniut all distroy Some one?</p>
+ <p>+ Anyone can build anything. But Without peacemaker anything build cannot Continue. One team can build Country and the World. What we are doing lasts Years mistake Making right. Yes You are own So many sky Towers. Land have . Income have. But people Cannot keep there mail front of House. You are broded Maore then 14 Millions in to the Country. Country all everywere is Macy.</p>
+ <p> * You people give advise to religios leaders also. Those are wrong. They are Educated people?
+ <P> + UN Leader. Leader. Religios Leader . Those are the places can make Right. True Educated people can do more. But See the World. As a ousr knowlage can do More. You see religios leader Donald thrump and Neth Yahoo Meating. What is wrong there Why religios leader cannot follow it?
+ <p> * You are saying Thieves must depot. Why we can ritraining and bring to the Sosaity?
+ <p> + Thives bourn by there Blood-type. We cannot correct them. People have anger and do manything go prison. We can retrain. But Thieves cannot ri training. We must Diported them. Camera evidans very good eneugh.</p>
+ <p> * You are saying Slave leaders. But they are did many good things to Country and the people. You put all on to the Ocean.
+ <p> + When people Choose the leader. They give Him to sallary and Benifits. Plus you earn something . You are wrong leader. You can earn how much you like. You have Power. You are build so many Condos. But Millions of people are sleeping on the Roads.
+ <p>* We cannot make stand up people. They are have to do them self. One day they do let them to stand Up.
+ <p> + We know thet but we are sayng. Don't Rob there properties. Let those Benifits go the all Country. And People. Thanks! </p>
+ <h6> Own and oparated by George Bush and Lora bush , Hillary Clinton, Entrepreneur Justin henry Wickramarathna. See You Monday. We are Closed Sunday. Thanks!</h6>
+</p>
+ 
+</p>
+-------------------------------------------------------------------------------------------------------
 
 <h1>Indipendent U.S.A. 16/01/2026</h1>
 <p> George Bush & Laura Bush </p>
