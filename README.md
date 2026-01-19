@@ -4,6 +4,18 @@
 Hello World!
 </head>
 <body>
+
+
+ ............................................................................................
+ <h1> Indipendent U.S.A.</h1>
+ <p> Geoge Bush and Lora Bush</p>
+ <p> George Bush and Lora Bush says. Now we are indipendent Country. We are must work together for every Moment. They say our Farther Honastly make a tool to for Country . But slaves are stolen it made Country in very Deficult situation. People are got 41 Trillions Debits. They broded 14.5 Millions people are illegally. More then 10.000 people are killerd on the Border. Women and girls are abuses in dark night in Cool wether on the Border. Now Millions are people sleeping on Roads. Hard working people Cannot sleeping Home stolen there properties by Thieves'. So those all happend slave leaders very Selfish working and make income them selves.</p>
+<p> Plus they are making afganisthan and around World Opium . All product come to in side the Country and people are sleeping on the Roads  . George and Lora asking from people. You people asking for freedom. When start dipotation. Again screeming Don't do dipotation . We like to ask you. Hard working Home owner Cannot sleeping at Home. They can't keep there property stolan by thieves. Gold shop owners there hard working shops all distroy by in Miniut with Big Hammer. So you like to freedom Home Owners Or Thieves?
+<p> So solution is Here. Slave leaders never partisipating for Governing. There Wife and Children work for One Country. One Team . One Leader. Year 2028 Election People choose first Women leader in U.S.A. Under Geoge and Lora. Michele also Help. With Slave leader three of Hose Leaders also Gone. If not they have to see in Court and what they are didd last dacade to the Country. Ivanka Thrump come as a only one House leader . No more Three Please.</p> 
+<p> Now marco rubio have finish His job. All the World Opium production are stop. First Venezuela Drugs delivery guy arrasted. Now have to go Myanmar. Before Janury 31 st have to finish the Job. People need Vedio evidans distroing Opium product and same plases making Frut Mango , apple any permenant food. No vegitable. So now we charge Venezuela 100 Billions. Have to check Muammar how much get Charged ? Millions of familys destroy by Opium product.</p>
+< We belive Jesus and His Word. But we cannot direct work with Vatican. Because all income Go to the Italy. USA last years made lot of Problem need income to there. USA Give internet to every one. We work with Vatican only Sunday.Please.</p> 
+<h6> <p> George Bush and Lora bush and Hillary Clinton all Rights are Resived. Entrepreneur Justin Henry Wickramarathna. </p></h6>
+ ..........................................................................................
 <P> Suterday Questions & Answers 2026/01/17</P>
 <p> Georg & Lora Bush </p>
 <p> * Someone say last years they will Build and in miniut all distroy Some one?</p>
