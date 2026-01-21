@@ -4,6 +4,18 @@
 Hello World!
 </head>
 <body>
+ <h1> Indipendent U.S.A. Listn Linda Listn How People are got 41 Trillons Debits?</h1>
+ <h3> Lora Bush & Hillry Clinton </h3>
+ <p> George H.W.Bush Senior and Miss Barbara Bush Immiditly Fried there son George Bush Junior from indipendent U.S.A. Team. Because of He have secred conections with former presiden Barack Obama. Barack Obama have Gilty with Supply to RUSSIA 200 Billions USD. and He have Cash amaount 13o Millions USD. Plus He have with META 604.12 cents.$ 1.52 Trillons Baby 1.52 Trillons. Plus he have african bank Conection and UK Bank Conections. Michily Obama get Gilty with Breac Amazon Family , Microsoft Family and make Income She has Apple Inc $246.70 Billons No No 3.63 Trillions Baby $ 3.63 Trillons.. We have to Count How much have Microsf wife and Amazon wife. All income Conection have with Michele Obama.</p>
+ <P> Secand one is Joe Biden . He did supply to China $200 Billions and He have around 100 Millions Cash. Plus he have Tesla inc Conections $419.25 Billions. $ 1.31 Trillons Baby $1.3 Trillons.</P> 
+ <p> We Go to Donald thrump He gave Japan to $ 200 Billions Twise and all 400 Billions. Plus he Have cash $2.5 Billions. Plus He have Amazon income 2.47 Billions. Sorry not Billions 2.47 Trillions Baby 2.47 Trillions. </p>
+ <p> Bill Clinton Offer to the Euop $ 200 Billions if He come to Power anyway he have more then 200 Millions in Income. May be Cash. And he have Google Conection 3.89 Trillions. Trillions Baby Trillons.</p>
+ <P> So this is How people are got 41 Trillons Debit. People are Payng . around 1000 Billions only intrest rate. * So What have to do the People. + We have in the Well. So we have come back from same Place. Immiditly bring Lora Bush and Hillary Clinton and Immiditly make one Country one Team one Leader. Make Can as Hillary s second Leader.</P>
+ < P> What happand to the Vatican? + Vatican last for years make income $ 835 Millions and leader dide. Now we are stop suport Because all income go to the Italy.</P>
+ <P> So today get very importent news what Happand to the America and Donald Have to immidiatly Resign and have to give Government to Lora and Hillary. Now we have investigating . Poppy Flower ( Opium ) Grow in Myanmar. But we cannot investi gate Donald one Friend is is the leader. When Hillary came after immidiatly. Bring back Woman Leader. Aunsa suki to Power. Now she is preson. No one Don't no were is he been Preson.</P>
+ <h1> Lora Bush and Hillary Clinton All right Resived.</h1>
+ <p> I am entrepreneur Justin Henry Wickramarathna.</p>
+                                                                                                                                                                                                                                                                                                                                                                                                                                        
  ....................................................................................
 <h1> Independent and U.S.A. 2026/01/20</h1>
 <p> Georg Bush & Lora Bush</p>
