@@ -4,6 +4,19 @@
 Hello World!
 </head>
 <body>
+ <h1> Independent U.S.A. </h1>
+ <p></p> Lora Bush & Hillary Clinton </p>
+ <p> Lora & Hillary say now 5 Places Casino is Closed. Immidiatly let people Know How to Invest?. So I am Entrepreneur Justin Henery Wickramarathna. As my Knowlage i am sayng to people . You buy Three Stocks. What is never fallen Down. I Choose HD - Home Depot Inc. Today we are talk about Why Home Deport?</p>
+ <h5> HD- NYSE - Home Depot Inc , Year Range is - $ 326.31 to $ 426.75 , Marcket Cap $ 373.43 Bn U.S.D.,Ave Volume 4.68 Million. It Meaning if you Like to Buy 1 Share You have to Have Minimum $ 326.31. If you are Buy 5 need $1,631.55 , If you are Buy 100 , You are need $ 32,632, If you are buy 1000 Shares You are need $3,26310.00  . Second thing is if you are Shares. You have to expend your income with Home Depot, Example : if you are buy many things to your House Buy from Home Depot. It make your income Up withput you notice. First You choose Your Home very near Location, Example My Location is I choose what is my fill Comfotable. I Choose My Location . 428 Ellesmere Road, Scarborough, Ontario, M1R 4E6, Phone : 416 609 1800 - Location Number is #7001. I put My Contact EMail: jhenrywickramarathna@outlook.com , My Phone Number 416 834 1232 Entrepreneur Justin Henry Wickramarathna. 125 Bonis Avenue, Scarborough, Ontario , M1T 3R8 , Canada. </h5>
+<p> So why i give my information to my Location. They will Issue Credit card. What i am get product from them. Have Special discount . So if you are registor with your location you will get More and more Benifit.</p>
+<p> * But they are very expensive. $ 326.31 Meaning is to much. We have Lot of investment can buy Cheeper and can earn to much?.</p>
+<p> + What We are trying to do make one of Company your Life Partner. You have to buy House or Condo. If you are saty in Rent Every day loos your income. You have House or Condo. Every day your income Getting High without you Know. But Hous or Condo run is not easy. Your sallary Expend for your every day expenses. You cannot work every day Overtime. So investment is the way you can stand up your Self. What you have to do is Buy as much as share. Make life is easy. Follow every day your Company what happand. You buy share meaning you are one of Partner in Company. If you need personal more infor mation. Contact me by mail. Entrepreneur Justin Henry Wickramarathna, 125 Bonis Avenue, scarborough, Ontario, M1T 3R8 , Canada. I can supply you more information.</p>
+<P> Tomorow we are talk about Costco . See you are Tomorow.</P>
+<h5> Lora Bush, Hillary Clinton, Entrepreneur Justin Henry Wickramarathna. All Rights are Resived.</h5>
+
+
+
+ ...........................................................
  <h1> Indipendent U.S.A. Listn Linda Listn How People are got 41 Trillons Debits?</h1>
  <h3> Lora Bush & Hillry Clinton </h3>
  <p> George H.W.Bush Senior and Miss Barbara Bush Immiditly Fried there son George Bush Junior from indipendent U.S.A. Team. Because of He have secred conections with former presiden Barack Obama. Barack Obama have Gilty with Supply to RUSSIA 200 Billions USD. and He have Cash amaount 13o Millions USD. Plus He have with META 604.12 cents.$ 1.52 Trillons Baby 1.52 Trillons. Plus he have african bank Conection and UK Bank Conections. Michily Obama get Gilty with Breac Amazon Family , Microsoft Family and make Income She has Apple Inc $246.70 Billons No No 3.63 Trillions Baby $ 3.63 Trillons.. We have to Count How much have Microsf wife and Amazon wife. All income Conection have with Michele Obama.</p>
