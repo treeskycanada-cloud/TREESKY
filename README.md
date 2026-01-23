@@ -6,6 +6,25 @@ Hello World!
 <body>
  <h1> Independent U.S.A. </h1>
  <p></p> Lora Bush & Hillary Clinton </p>
+ <p> Final Note about USA Income </p>
+
+ <h5> Donald Thrump With Jeb bassos' - $ 2.5 Billion Privet income Donald and Two Times Pay Japan 200 Billions = $ 400 Billions. With Amazon 2.56 Trillions <h1> 2.56 Trillions USD.</h1></h5>
+ <h5> Joe Biden With , Elon Musk 120 Millions & Gave to China 200 Billions, With Tesla Income 1.49 Trillons USD <h1> 1.46 Trillions USD </h1></h5>
+ <p> Bill Clinton With Google 120 Millons With Google Income 3.98 Trillons USD  <h1> 3.98 Trillions USD</h1></p>
+ <p> Barack Obama with Meta - $120 Millons With Rusia Pay $200 Billions USD , All amaunt 1.68 Trillons USD <h1> 1.68 Trillions USD </h1></p>
+ <p> Michele Obama With , Apple , Microsoft Wife Incom , Amazon Wife Income , + Apple Income 3.64 Trillions USD <h1> 3.64 Trillons USD </h1></p>
+ <P > </P>Microsoft 3.49 Trillions USD <h1> 3.49 Trillons USD</h1> </P> 
+ <p> Warren Buffet 1.04 Trillions USD  <h1> 1.04 Trillons USD </h1></p>
+ <p> Black Rocks 175.25 Trillons USD <h1> 175.26 Bn USD </h1></p>
+ <h1> People Have Debits 32 Trillions USD , Pay Every years Arond One Thousends Billons. Tax .</h1>
+ <h5> Lora Bush & Hillary Clinton & Entrepreneur Justiin Henry Wickramarathna</h5>
+
+
+
+
+ -----------------------------------------------------------------------
+
+ <p> 2026/01/23 </p>
  <p> Lora & Hillary say now 5 Places Casino is Closed. Immidiatly let people Know How to Invest?. So I am Entrepreneur Justin Henery Wickramarathna. As my Knowlage i am sayng to people . You buy Three Stocks. What is never fallen Down. I Choose HD - Home Depot Inc. Today we are talk about Why Home Deport?</p>
  <h5> HD- NYSE - Home Depot Inc , Year Range is - $ 326.31 to $ 426.75 , Marcket Cap $ 373.43 Bn U.S.D.,Ave Volume 4.68 Million. It Meaning if you Like to Buy 1 Share You have to Have Minimum $ 326.31. If you are Buy 5 need $1,631.55 , If you are Buy 100 , You are need $ 32,632, If you are buy 1000 Shares You are need $3,26310.00  . Second thing is if you are Shares. You have to expend your income with Home Depot, Example : if you are buy many things to your House Buy from Home Depot. It make your income Up withput you notice. First You choose Your Home very near Location, Example My Location is I choose what is my fill Comfotable. I Choose My Location . 428 Ellesmere Road, Scarborough, Ontario, M1R 4E6, Phone : 416 609 1800 - Location Number is #7001. I put My Contact EMail: treeskycanada@gmail.com , My Phone Number 416 834 1232 Entrepreneur Justin Henry Wickramarathna. 125 Bonis Avenue, Scarborough, Ontario , M1T 3R8 , Canada. </h5>
 <p> So why i give my information to my Location. They will Issue Credit card. What i am get product from them. Have Special discount . So if you are registor with your location you will get More and more Benifit.</p>
