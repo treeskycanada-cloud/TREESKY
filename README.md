@@ -15,6 +15,7 @@ Hello World!
  <p> Michele Obama With , Apple , Microsoft Wife Incom , Amazon Wife Income , + Apple Income 3.64 Trillions USD <h1> 3.64 Trillons USD </h1></p>
  <P > </P>Microsoft 3.49 Trillions USD <h1> 3.49 Trillons USD</h1> </P> 
  <p> Warren Buffet 1.04 Trillions USD  <h1> 1.04 Trillons USD </h1></p>
+ <p> Nividia 4.56 Trillions U.S.D. <h1> 4.56 Trillons U.S.D.</h1> </p>
  <p> Black Rocks 175.25 Trillons USD <h1> 175.26 Bn USD </h1></p>
  <h1> People Have Debits 32 Trillions USD , Pay Every years Arond One Thousends Billons. Tax .</h1>
  <h5> Lora Bush & Hillary Clinton & Entrepreneur Justiin Henry Wickramarathna</h5>
