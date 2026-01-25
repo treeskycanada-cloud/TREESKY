@@ -4,7 +4,21 @@
 Hello World!
 </head>
 <body>
- <h1> Independent U.S.A. </h1>
+  <h1> Independent U.S.A. </h1>
+  <p> George Bush & Hillary Clinton</p>
+  <p> We did Laura Fire & George Bush did Hire Back. Reason is Laura and Hillary mean Country Going to be Too Lesbion and Year 2050 America going to be Muslim Country. </p>
+  <p> When you are say like this Michele Obama is Working Women and Mother of Children?. + Yes she is but her So greedy Women. She is income 3.64 Trillons Plus Three ( Opera, Amazon, Microsoft,) another Women income have to Count. We Don't Care How much her made. She has to pay my Payment as a George H.W.Bush senoir say. 96% to 4% ? * Yes she asking give to me power i do pay for you? * No She is Husbound made the Macy. He took very Clear Agreement George H.W. Bush Senoir. And made another one all are Scruwd up?. * He say you wrong cannot pay?. He is wrong not back to face the thruth. Give Russions 200 Billions to distroy the Stupid Commdy Man. Go bihaind the Lesbion.</p>
+  <P> Now you are back to Canada side?. What is the Point?</P>
+  <p> Point is i cannot go with this Billioners. Who have trillions income. They are theif my Hard Work. Hillary Says Poilivere Says. I make the agreement with all Tycoons. Thay Have to give me Equity Power Each Company like this. Please  Come back to USA Side.<h5> MSFT $344.79 Equity Power 10.000 , AMZN $ 161.43 - 10.000 , TSLA $214.25 - 10.000, META $ 479.00 - 10.000 , AAPL $169.21, BRK.B $454.60 - 10.000 , NVDA $ 86.63 - 10.000 , </h5></p>
+  <p> Canada  2025/01/25 New Agreement need 10 M Cash in to BRC. Reason is Canada Getting 70 Billions every Year. Not Paying agreement. Building offer Cannot excelpt because we need Chas to invest. Invest meaning Making Country Income High.</p>
+
+  <h1> Today Sunday Special edition </h1>
+<P> George Bush and Hillary Clinton . Entrepreneur Justin Henry Wickramarathna.</P>
+
+
+
+
+ ---------------------------------------------------
  <p></p> Lora Bush & Hillary Clinton </p>
  <p> Final Note about USA Income </p>
 
