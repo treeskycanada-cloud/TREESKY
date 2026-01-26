@@ -6,6 +6,20 @@ Hello World!
 <body>
   <h1> Independent U.S.A. </h1>
   <p> George Bush & Hillary Clinton</p>
+<p> We are Closed 5 Gambling stations in Las Vagas . And Turn to Last Vagas internationl Business Places. Idea is same Silicone valli We have day time and Night time Business Places. Because of when we are get night. Some Countrees are Day time. We need 24 Hours open Business Places and Schools. Sri lanka DP Education and Moratuwa Campas together going to Buy a one Building and Work with International.</p>
+<P> Are going to closed all Las Vagas casino?.</P>
+<p> No we are keep untill international people are need it. But they are also our Brothers and sisters. When they are get undestanding. Investment is the very Good Money maker. They are will joint with us do the Business. Wow Las vagas international Business Place and Schools. It Going to be a another Twin Towers.</p>
+<P> So now gambling Closing, Marco rubio working stop to all Opium production World. Vatican going to ask From Mexico stop Opium productions. UN Leader with vatican going to work with War Countrys Peace. As a henry says World is the Heavan.</P>
+<p> Yes power is not making income and put on Your pocket. Now Henry Waiting 7 Companey send to henry Thre Quote. 10.000 Max to BRC investment Account. When they get there we will do our Job.</p>
+<p> Henry says Invest with HD- Home Depot, COST - Costco Corparation, HLT - Hilton Hotel. Buy House Free , Buy Food Free,  Do travel Free This is nice way who do gamblin. Make a good life. ?</p>
+<p> Yes it meaning every one Work and Save $100 Month. Then When time is come start invest. Buy less with Right Company. When go Down buy again. one day Company get Surender and going to give back. So more Good information Contact Henry By mail. Because Henry Cannot give information by Using Internet. Gate keeprs are Block everything. Entrepreneur Justin henry Wickramarathna, 125 Bonis avenue, Scarborough, Ontario, M1T 3R8, Canada.</p>
+<h1> George Bush and Hillary Clinton All Rights are resived.</h1>
+
+
+
+
+  ------------------------------------------------------------------------------------
+  
   <p> We did Laura Fire & George Bush did Hire Back. Reason is Laura and Hillary mean Country Going to be Too Lesbion and Year 2050 America going to be Muslim Country. </p>
   <p> When you are say like this Michele Obama is Working Women and Mother of Children?. + Yes she is but her So greedy Women. She is income 3.64 Trillons Plus Three ( Opera, Amazon, Microsoft,) another Women income have to Count. We Don't Care How much her made. She has to pay my Payment as a George H.W.Bush senoir say. 96% to 4% ? * Yes she asking give to me power i do pay for you? * No She is Husbound made the Macy. He took very Clear Agreement George H.W. Bush Senoir. And made another one all are Scruwd up?. * He say you wrong cannot pay?. He is wrong not back to face the thruth. Give Russions 200 Billions to distroy the Stupid Commdy Man. Go bihaind the Lesbion.</p>
   <P> Now you are back to Canada side?. What is the Point?</P>
