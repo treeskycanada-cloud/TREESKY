@@ -6,6 +6,15 @@ Hello World!
 <body>
   <h1> Independent U.S.A. </h1>
   <p> George Bush & Hillary Clinton</p>
+  <P> Last night i did closed Apple all E mails and product. Reason is They are Team or Gate Keepers. Without Permition enter to my TD bank acount took money and i have TD now less the $50.00 CAD. Apple income is 3.64 Trilloins. My product income they make rich more then Trillons income. TD Bank income is after Mark Carni came to get high now 218 Billions income. My product bort them Billions of Income. Last time also TD stolen my income and came negotion to 35 Millions canadian pay back. But They are didnt pay me any Penney. So this time Apple pay back to my Acount 35 Millions. We are closed all our product with Apple. Thanks for people are suporting to me.</P>
+  <p> Next we are going to do same things to around one week to Microsoft. B Gote and he is doghter keep my billons of income Block. Because He is dogter supot to the Lesbion. She is sayng bring back power to the lesbion. Then you are get income . Both farther and Doughter income is 3.98 Trillons. After one week our oparations Going to get down trillions of income and Last Warning. They are pay for gate Keepers . They are don't know My name is Justin Henry Wickramarathna. RBC.</p>
+  <p> Now both side are fighting for power. Nothing doing to the Country. Last for years killed the Country. This four years Wasted the time. They are asking bring back to the USA. OK pay back bring to the USA. My agreement is 96% to 4% You are using 100% . It is wrong.
+  </p
+    <h5> </h5>GB & Hillary Clinton. Entrepreneur Justin Henry Wickramarathna. All rights are Resived. <h5>
+
+
+
+  -----------------------------------------------
 <p> We are Closed 5 Gambling stations in Las Vagas . And Turn to Last Vagas internationl Business Places. Idea is same Silicone valli We have day time and Night time Business Places. Because of when we are get night. Some Countrees are Day time. We need 24 Hours open Business Places and Schools. Sri lanka DP Education and Moratuwa Campas together going to Buy a one Building and Work with International.</p>
 <P> Are going to closed all Las Vagas casino?.</P>
 <p> No we are keep untill international people are need it. But they are also our Brothers and sisters. When they are get undestanding. Investment is the very Good Money maker. They are will joint with us do the Business. Wow Las vagas international Business Place and Schools. It Going to be a another Twin Towers.</p>
