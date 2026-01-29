@@ -4,6 +4,26 @@
 Hello World!
 </head>
 <body>
+<h1> After Mother Vomb Without eye's open Little Child Screeming. All the World got Waking Up. Immiditly Complited New Government Etblish today under Biden. JD Vance and Marco rubio run the Government. Until get the Election.</h1>
+<P> Holly Farther say as i said Before. American people are Have Free Debits. Because past years run all Government not Protect the People.</P>
+<P> Hillary Clinton Says Now On all the Lass vagas. Take back tothe People. Before its call Donald thrump Las Vagas Casino. Now Start it call Hillary Clinton Las vagas International Business Center and The Business training Center. Its going to Work 24 Hours. Day time Team and Night time Team.</P>
+<p> Day time Team doing Local business. Night time Team doing inter natinal Business. I ask inter national Student get training from Us . One of my Close Univrcity Handle the Clasas. Hillary says Every one come same like a came to play Casino. Before you Eat free. parking Free go Home your Pocket also free. No more i am asking all the busines Owners Donald time Stolen people Money. Every one put one Buillions to re Devolop International Buisiness.</p>
+<p> Same i will plan to New York City to Las vagas Business center to Direct Small Railway system. Now people very hard to get there People are Complaining. All university student after graduate. Who like to do small Business. Directly Come to the Lass Vagas Inter national Business Center. You have Small Loan with Small Business Training.</p>
+<P> We like to continue Farther Grand mothr leader and sleepy UN leader Conver sation.</P>
+<p> Now Grand ma leader complaining to the Farther. Farther Henry have to much Big Mouth. No education. No treet thre Children to Properly. But he lead the World. This is not fair. How maney Universitys we have?. How maney educated people we have. same like a Donald Thrump we have to kik of him Out? </p>
+<p>  Holy Farther say Take it easy Grand ma. First you have to think. Your Former Leader George H.W.Bush Senior. See those Universitys. Show all education people. He was Leader. He son was leader. Why He Choose Henry?. Leader meaning like a Jeasus. All the people are He is sons and Doughters. He show the future. He know who is the Henry. he he don't care who is the Henry. Because He did see Henry can change many. He offer to henry without any Dought 4%. You guys every one Stolen 100% . You guys ass He need have Constitution. But Leader see all everything have leaders what they do. Without anything Henry How many thinks done So far.</p>
+<P> You see now dessart Grow trees. All the World making trees. See Ethiopia was poor Country. Now they have power . See IRS They make desart Rivers.Eagipt making froot and vegitabl. See now China all people are working. They have more then one point five Billions. Now they have number one Economy. This Help Henrys hard Work. Only noth america Sri lanka. sme like turtal. Hilalary says Hard working Take and meanit. Poiliver say Day time Robbary. But Henry Finish the Job. With Between Millions of dicultis.</P>
+<P> He made children . Three childrens two mareed. He cannot live with Children. Because of He is Work. He need indipendent place to work. Evry Christmass Children come and see ther parant. This how Henrys family Grow. Some one say he didnt see grand child. No he came to see him. When He done this job He will Travel. He no need any position. But he need All peopler Robber He is income. As Geoge H.W.Bush Senior Promise. Not all Some. </P>
+<p> All Rights are resived Joe Biden Hillary and Team. Entrepreneur Justin Henry Wickramarathna.</p>
+                                                                                        
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                     
+                                                                                                                                                                                                                                                                                                        
+
+
+
+
+
+  -------------------------------------------------------------
   <h1> Independent U.S.A. </h1>
   <p> George Bush & Hillary Clinton</p>
   <p> 28/01/2028</p>
